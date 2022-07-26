@@ -48,7 +48,7 @@ Steam是有账号的（小声）
 
 有两只可爱的猫猫:[hvick226](https://twitter.com/hvick226w) [千畔](https://twitter.com/never7ko)
 
-好朋友w:[targ](https://twitter.com/LivansNot) [真白](https://twitter.com/sioesukision) [诺诺](https://twitter.com/noive123)
+好朋友w:[targ](https://twitter.com/targ_muzik) [真白](https://twitter.com/sioesukision) [诺诺](https://twitter.com/noive123)
 
 还有再写x
 
