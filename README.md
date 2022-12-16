@@ -29,11 +29,11 @@ reddme
 
 Q2282983971 
 
-TG：@NyanWhiteW 
+TG：@NyanWhite
 
 Bilibili：NyanWhite 
 
-Twitter：@_NyanWhite
+Twitter：@_NyanWhite @yh_ayame
 
 OSU：NyanWhite
 
