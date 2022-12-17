@@ -35,6 +35,8 @@ Bilibili：NyanWhite
 
 Twitter：@_NyanWhite @yh_ayame
 
+上面这两个号全没了...还有一个但是不会公开 PM我就好
+
 OSU：NyanWhite
 
 也就是说其实大部分都是同名的
