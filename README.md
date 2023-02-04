@@ -27,15 +27,11 @@ reddme
 
 也有比较多的联系方式 内和外的 你可以在很多地方找到我
 
-Q2282983971 
-
 TG：@NyanWhite
 
 Bilibili：NyanWhite 
 
-Twitter：@_NyanWhite @yh_ayame
-
-上面这两个号全没了...还有一个但是不会公开 PM我就好
+Twitter：@_NyanWhite
 
 OSU：NyanWhite
 
